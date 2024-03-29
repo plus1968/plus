@@ -1,5 +1,5 @@
-# Hi , I'm Jear 👋
-###  Jullajak Saksri
+# Hi , I'm Plus 👋
+###  Thanawat Taniksunannitima
 
 ## 📞 My contact :
 
